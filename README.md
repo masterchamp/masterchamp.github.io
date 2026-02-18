@@ -1,4 +1,4 @@
-Datenschutzerklärung – Karnivoren Manager
+Datenschutzerklärung – MyCarnivors
 
 1. Verantwortlicher
 
